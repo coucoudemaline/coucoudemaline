@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @coucoudemaline
 - 👀 I’m interested in VIDEO GAMES specially Arma III.
-- 🌱 I’m currently learning ti live in harmony with myself.
+- 🌱 I’m currently learning to live in harmony with myself.
 - 💞️ I love almost everyone !
 - 📫 Do not reach me !!!
 
